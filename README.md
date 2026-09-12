@@ -5,7 +5,8 @@
 
 
 <p>
-write something here
+I love Deadlock, overwatch, MLP, DC, Cowboy Bebop, HXH, Resident Evil, Silent Hill, 
+  Vocaloids, Madoka Magica, NSO, Darkstalkers :DDDD
 <br>
 
 
