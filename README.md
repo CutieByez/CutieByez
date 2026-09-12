@@ -5,8 +5,8 @@
 
 
 <p>
-I love Deadlock, overwatch, MLP, DC, Cowboy Bebop, HXH, Resident Evil, Silent Hill, 
-  Vocaloids, Madoka Magica, NSO, Darkstalkers :DDDD
+I love Deadlock, overwatch, MLP, DC, Cowboy Bebop, HXH, Resident Evil, Silent Hill and lots more :D
+
 <br>
 
 
