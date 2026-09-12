@@ -10,7 +10,7 @@ I love Deadlock, overwatch, MLP, DC, Cowboy Bebop, HXH, Resident Evil, Silent Hi
 <br>
 
 
-<img src="https://komarev.com/ghpvc/?username=CutieByez&label=views">
+<img src="https://komarev.com/ghpvc/?username=CutieByez&label=🫧&color=D973A6">
 
 <br>
 
